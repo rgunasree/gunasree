@@ -1,7 +1,7 @@
 # வணக்கம்(Vanakkam) I'm Gunasree! <img src="https://github.com/sciencepal/sciencepal/blob/master/assets/Hi.gif" width="29px">
 
 
-You are at the page of a sophomore who is doing her bachelors in B.Tech AI&DS at KIOT and I live in INDIA 🇮🇳 
+You are at the page of a pre-final year who is doing her bachelors in B.Tech AI&DS at KIOT and I live in INDIA 🇮🇳 
 
 
 🌸*Let me tell the secret ingredient of my passion towards learning!!!* 🌸
